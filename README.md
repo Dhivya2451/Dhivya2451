@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dhivya2451
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning computer science Engineering
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on IT SECTORS
 - 📫 How to reach me EMAIL-dhivyamadesan245@gmail.com
 
 <!---
